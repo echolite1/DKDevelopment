@@ -1,0 +1,2 @@
+# re-Detector
+DR.KRANIK DEVELOPMENT
